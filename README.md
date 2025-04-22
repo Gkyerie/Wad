@@ -1,0 +1,2 @@
+# Wad
+ tugas tugas wad
